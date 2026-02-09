@@ -1,0 +1,1 @@
+# Six_months_of_AI_and_Data_Science_Mentorship
